@@ -1,4 +1,4 @@
-huailaitour.com
+huailaitour.cn
 ===============
 
 huailai tour guide
